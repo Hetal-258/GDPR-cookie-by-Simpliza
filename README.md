@@ -1,0 +1,1 @@
+# GDPR-cookie-by-Simpliza
